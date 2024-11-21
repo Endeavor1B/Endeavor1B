@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on microsoft
 - 📫 How to reach me @BHADER007 on X
 - 😄 Pronouns: MAN
-- ⚡ Fun fact: AM A GEMAR
+- ⚡ Fun fact: IM A GEMAR
 
 <!---
 Endeavor1B/Endeavor1B is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
